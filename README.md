@@ -34,5 +34,5 @@ Estou em formação na área de Engenharia de Software e busco evoluir continuam
 
 ## Contato
 
-- LinkedIn: _adicione o link do seu perfil_
-- E-mail: _adicione seu e-mail_
+- LinkedIn: www.linkedin.com/in/nathan-victor-oc
+- E-mail: nathanvictor013@hotmail.com
